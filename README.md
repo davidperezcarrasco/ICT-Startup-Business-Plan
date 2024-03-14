@@ -1,0 +1,1 @@
+Originated a new start-up and implemented the whole business plan about it, with deep study and research about: Strategic Concepts about the Company; Marketing; Operations Plan; Information Systems; Human resources; Environment Analysis; Finances: Cashflow and Income Statement forecast and evaluation of different finantial case scenarios.
